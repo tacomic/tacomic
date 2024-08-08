@@ -12,10 +12,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-  ★ ︎︎ ︎ i ︎love ︎bill ︎cipher ︎+ ︎sebastian ︎solace ︎︎ ︎ 𓏵 ︎  ︎𓈒 
+  ★ ︎︎ ︎ i ︎love ︎bill ︎cipher ︎since ︎2019 !! ︎︎ ︎ 𓏵 ︎  ︎𓈒 
 
 ︎︎ ︎     𝜗୧ ︎︎ ︎ 𓈒 ︎︎ ︎ taken ♡ ︎︎ ︎04.07.2024 ︎︎ ︎ 𓏲 ︎︎ ︎ ︵︵
 
-![](https://media1.tenor.com/m/Yd-AqBuzoVgAAAAC/pressure-roblox.gif)
+![](https://pbs.twimg.com/media/GUdO99FWMAAWJMV?format=jpg&name=large)
 
-![](https://64.media.tumblr.com/34025c25c398b0b742bd529651173334/c9e726a4e328dd00-90/s100x200/c2d2e014f7a69b540ed6ab2861af02c467c86616.gifv) ![](https://64.media.tumblr.com/67fc48a003056ec3ec1e75f657f37f76/c9e726a4e328dd00-43/s100x200/a42807af2bb4551813348147d20e6a18b08ab597.gifv) ![](https://64.media.tumblr.com/d86f74deaa4979c504394389e73308de/c9e726a4e328dd00-b4/s100x200/cb42e5314f7b525aceef115cd319e9c201df9dce.gifv) ![](https://64.media.tumblr.com/c7c2c6bc22e543896d608cdaaf882fc8/c9e726a4e328dd00-24/s100x200/2bf902af17daa569ca8d3bbd45796da33cf564c8.gifv)
+look at my kinsona !! :D
