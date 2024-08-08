@@ -18,4 +18,4 @@ Here are some ideas to get you started:
 
 ![](https://pbs.twimg.com/media/GUdO99FWMAAWJMV?format=jpg&name=large)
 
-look at my kinsona !! :D
+look at my kinsona !! art made by me obviously
