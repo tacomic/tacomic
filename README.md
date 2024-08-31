@@ -12,10 +12,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-  ★ ︎︎ ︎ i ︎love ︎bill ︎cipher ︎since ︎2019 !! ︎︎ ︎ 𓏵 ︎  ︎𓈒 
+  ★ ︎︎ ︎ wip ︎︎ ︎ 𓏵 ︎  ︎𓈒 
 
 ︎︎ ︎     𝜗୧ ︎︎ ︎ 𓈒 ︎︎ ︎ taken ♡ ︎︎ ︎04.07.2024 ︎︎ ︎ 𓏲 ︎︎ ︎ ︵︵
-
-![](https://pbs.twimg.com/media/GUdO99FWMAAWJMV?format=jpg&name=large)
-
-look at my kinsona !! art made by me obviously
