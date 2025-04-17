@@ -1,3 +1,1 @@
-            ![](https://64.media.tumblr.com/7430f2befa843864b4ea911c4f11b166/3b408ace742f5d6c-2b/s2048x3072_c0,0,99833,99704/cf30e8f2510f4ec3e70c7f80fd9d6f42ffe173bb.gif)
-        
-                 　　   ✚　𓈒ㅤ[rentry](https://rentry.co/organchords)ㅤ⿻ㅤ[pronouns.cc](https://pronouns.cc/@mefon) ৎ　　ꭷ　　◌ 　  ׁ  　🐟　  ͡ ⠀　  ۪ 　 ✧　  ֗ 
+![](https://file.garden/ZjKjCNClQA2p3YBz/rsrcs/stamps/tumblr_f2cc11dca0d73054681aa4bb987beb98_3a45a85b_100.png) ![](https://files.catbox.moe/nmun2f.gifv) ![](https://64.media.tumblr.com/7b6c6ee24fbab7095fc7151adffbc4fc/59b2e9044c975316-03/s100x200/6fe64b82315503372c4b8ec7f9b948119bebcafc.pnj) ![](https://i.postimg.cc/28YXxCkK/27.gif) ![](https://files.catbox.moe/7wl9e6.gif) ![](https://file.garden/ZjKjCNClQA2p3YBz/rsrcs/stamps/more%20mine/ezgif-1-5c1b2f00e0.gif) 
