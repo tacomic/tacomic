@@ -1,4 +1,7 @@
-i stopped playing pony town because it reminds me of bad experiences. i also dont like zero day and TCC anymore, if you want to continue in contact w me just follow me on twt but i dont like weirdos.
-I AM THE NUMBER 1 JAX FAN IM A NON SHARING SOULBOUND RIAKO I LOVE HIM AAAAAAAAAAAAAAAAAAAAA!!!!!!!!! even if i dont play anymore i'll never give the tacomic user its MINE i love the lesbians
+![](https://media.tenor.com/U-CW_-kw47sAAAAi/wadanohara-wadda.gif)
 
-**UPDATE (07.28)** i started playing again but i wont be active as much.. just appear from time to time.
+> hello there!! my name is angel/ena or wada!! ~ ✧
+
+> i am a yumejo & soulbonder! i love [jax](https://tadc.fandom.com/wiki/Jax) & he loves me
+
+> (＞人＜；) read my rentry & sign my atabook! see ya later!
